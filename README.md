@@ -1,6 +1,6 @@
 # 📌 Declaration of Authorship elegy for life /   اعلام مالکیت اثر در سوگ زندگانی
 
-This book is my original work. I am the sole author and the exclusive copyright holder of all the content included here.  
+This book is my original work. I am  Younes Korouji and the sole author and the exclusive copyright holder of all the content included here.  
 I am publishing this file publicly to provide verifiable evidence of authorship.  
 Unauthorized copying, redistribution, or commercial use of this content is strictly prohibited.
 
