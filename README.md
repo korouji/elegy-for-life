@@ -1,11 +1,9 @@
 # 📌 Declaration of Authorship elegy for life /   اعلام مالکیت اثر در سوگ زندگانی
 
-This book is my original work. I am  Younes Korouji and the sole author and the exclusive copyright holder of all the content included here.  
-I am publishing this file publicly to provide verifiable evidence of authorship.  
-Unauthorized copying, redistribution, or commercial use of this content is strictly prohibited.
 
-این کتاب به‌طور کامل توسط من نوشته شده است و تمامی حقوق نویسندگی و مالکیت آن متعلق به خودم می‌باشد.  
-انتشار این فایل به‌صورت عمومی برای اثبات و ثبت مالکیت اثر انجام شده است.  
+Unauthorized copying, redistribution, or commercial use of this content is strictly prohibited.
+  
 ⛔ هرگونه کپی‌برداری، بازنشر یا استفاده تجاری بدون اجازه ممنوع است.
+نسخه منتشر شده ممکن است که دارای ایرادات تایپی باشد.
 
 # مجموعه اشعار در سوگ زندگانی نوشته شده توسط یونس کروجی
